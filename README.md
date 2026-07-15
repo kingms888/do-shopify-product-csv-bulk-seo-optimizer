@@ -1,0 +1,1 @@
+# do-shopify-product-csv-bulk-seo-optimizer
